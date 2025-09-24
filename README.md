@@ -18,7 +18,7 @@
 
 ## 📫 Contato
 
-- [eduardo.melo010@gmail.com]
+- eduardo.melo010@gmail.com
 
 ---
 
