@@ -16,9 +16,9 @@
 
 ---
 
-## 📫 Me Contate
+## 📫 Contato
 
-- [Email](mailto:eduardo.melo010@gmail.com)
+- [eduardo.melo010@gmail.com]
 
 ---
 
